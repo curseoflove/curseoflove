@@ -15,4 +15,6 @@ I always appreciate if you check out any of my links and sign my ata or follow! 
 
 > [strawpage](https://classicmelody.straw.page/), [rentry](https://rentry.co/curseoflove), ask personally for discord! thank you for reading and farewell
 
-> ![tumblr-inline-p88mmi-KOIA1qk1or3-75sq](https://github.com/user-attachments/assets/d8a8df4a-2a25-4ef4-b7aa-94dbef84910c)　　![cce2f049](https://github.com/user-attachments/assets/d2e7801b-7ae9-4bb5-811a-36f9ad8f80e3)　　 ![IMG_4554](https://github.com/user-attachments/assets/47ece2c2-9d7c-45f3-9ef0-11d30b995b92)
+
+> 
+___
