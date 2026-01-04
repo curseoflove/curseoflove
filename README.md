@@ -5,7 +5,7 @@
 
 > This is only used just for 	<ins>aesthetic purposes</ins> + if you wanna get to *know me more* lol　 ![ogl5au](https://github.com/user-attachments/assets/179c33ea-0b6f-486d-abd2-e77f917ebd42)
 
-<p align="right">Normally i'm just a docks npc and I don't do anything unless you see me in rps you can always say hi and i'll respond to you back! (unless im afk or offtab) I'm normally **awkward** during our *first meeting* but I always love making new friends so don't be <ins>afraid to interact!</ins>
+<p align="right">Normally i'm just a docks npc and I don't do anything unless you see me in rps you can always say hi and i'll respond to you back! (unless im afk or offtab) I'm normally awkward during our first meeting but I always love making new friends so don't be <ins>afraid to interact!</ins>
 
 > If you really want to catch my attention always **private message / whisper** and i'll try to respond when I see your message, I normally *don't respond if I read your message* is because don't know what to say or I forgot (im a forgetful person most of the time so <ins>I apologize in advance</ins>)　![ezgif-3-4ae36791c5](https://github.com/user-attachments/assets/a6441dd7-c707-4c30-81b7-9db158156434)
 
