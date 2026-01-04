@@ -12,9 +12,9 @@
 <p align="right">Normally I just use my oc skins and sometimes cosplays of characters I like (some of them are from medias I don't interact in such as homestuck). I like alot of characters such as Mipha, Sayaka Miki, Nepeta, so if you like them too thats nice! I'll always try to <ins>copy your energy but just know I can be dry sometimes!</ins>
 
 
-**I always appreciate** if you check out any of my links and sign my ata or follow! links will be listed bellow but its <ins>also on my profile</ins> 　ྀུ ࿐ㅤㅤ༊࿔　![euw6hg](https://github.com/user-attachments/assets/d8e90d2f-a556-4d53-a880-a39366fefcf5)
+**I always appreciate** if you check out any of my links and [sign my ata](https://cursedlove.atabook.org/) or follow! links will be listed bellow but its <ins>also on my profile</ins> 　ྀུ ࿐ㅤㅤ༊࿔　![euw6hg](https://github.com/user-attachments/assets/d8e90d2f-a556-4d53-a880-a39366fefcf5)
 
-> [strawpage](https://classicmelody.straw.page/), [rentry](https://rentry.co/curseoflove), ask personally for discord! thank you for reading and farewell
+> [strawpage](https://classicmelody.straw.page/), [rentry](https://rentry.co/curseoflove), [ata](https://cursedlove.atabook.org/), ask personally for discord! thank you for reading and farewell
 
 
 > 
