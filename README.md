@@ -1,5 +1,5 @@
 (´◞ ✚𓏼 )  "  ℐ'm slowly forgetting your 𝘧ace.  "𓏼 ‿◞ ֪ ‎ ‎
-> ![](https://i.pinimg.com/originals/c8/ba/30/c8ba30ee61944cc26dbde4022a0a4b72.gif)
+> ![](https://i.makeagif.com/media/4-05-2016/utmjeB.gif)
 
 ◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
 > ︶ ͝  names  :  ROSE¹ 𓏼 ‿◞  ANNIE²
