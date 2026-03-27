@@ -11,3 +11,11 @@
 
 ◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
 > ![](https://i.pinimg.com/originals/a8/93/90/a89390959d388c6b9b7762a01eaf39b6.gif)
+
+
+◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
+
+> fandoms of the cosplays i use are free to int and c+h, some fandoms i am in are
+
+    Evangelion,  Dandy's World, ATLA, Madoka Magica, Umamusume, and more.
+    
