@@ -4,8 +4,9 @@
 ◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
 > ︶ ͝  names  :  ROSE¹ 𓏼 ‿◞  ANNIE²
 
-> I prefer people to call me rose if you know me by that name, please call me annie if you int without knowing me prior. i prefer being called rose by people i trust!
+> If you know me by rose you can call me that, please call me annie if you int without knowing me prior. i prefer being called rose by people i know!
 
+> i join alot of rps and i host a kgrp, im normally afk by docks and rarely in fandom spots.
 
 >  isfp-t 3w2 368so   13+　 -16  ₍^. .^₎Ⳋ  under 11 dni
 
@@ -21,8 +22,11 @@
     
 
 ◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
-> ![](https://i.makeagif.com/media/4-05-2016/utmjeB.gif)
 
 > shout out to oomfs 6ums
 
-@fawnshaveworms 
+@fawnshaveworms @Fufuyio1206 @May0nnais @eizoar @childofwinter 
+
+> follows are heavily appreciated and signing my ata aswell! thank you for reading.
+
+◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
