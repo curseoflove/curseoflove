@@ -7,8 +7,7 @@
 > I prefer people to call me rose if you know me by that name, please call me annie if you int without knowing me prior. i prefer being called rose by people i trust!
 
 
->    isfp-t 3w2 368so
-
+>  isfp-t 3w2 368so   13+　 -16  ₍^. .^₎Ⳋ  under 11 dni
 
 ◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
 > ![](https://i.pinimg.com/originals/a8/93/90/a89390959d388c6b9b7762a01eaf39b6.gif)
