@@ -29,4 +29,6 @@
 
 > follows are heavily appreciated and signing my ata aswell! thank you for reading.
 
+> ![](https://i.makeagif.com/media/4-05-2016/utmjeB.gif)
+
 ◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
