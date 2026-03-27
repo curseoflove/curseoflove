@@ -19,3 +19,10 @@
 
     Evangelion,  Dandy's World, ATLA, Madoka Magica, Umamusume, and more.
     
+
+◟    ͜ ◞    𐙚ྀ    ◟ ͜    ◞
+> ![](https://i.makeagif.com/media/4-05-2016/utmjeB.gif)
+
+> shout out to oomfs 6ums
+
+@fawnshaveworms 
