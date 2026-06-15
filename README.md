@@ -1,7 +1,8 @@
 
-> ![](https://i.makeagif.com/media/4-05-2016/utmjeB.gif)
+ ![](https://files.catbox.moe/ujf59r.png)
 
-> i join alot of rps and i host a kgrp, im normally afk by docks 
->  isfp-t 3w2 368so   13+　  ₍^. .^₎Ⳋ  under 11 dni
+    ![](https://file.garden/ZaGf-neHfDeFelYd/wand/buttons/angelpurple.gif) 
+
+
 
 
