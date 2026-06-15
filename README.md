@@ -4,7 +4,7 @@
 
 > ![]() <img src="https://i.postimg.cc/9M42h0JZ/885664837940674570.gif" width="20" height="20"> -11 dni ︵ isfp so368
 >
-> ![](https://i.postimg.cc/fLwYpwgd/IMG-4029.gif)  i like jjk + nge :-) mainly afk so w2i
+> ![](https://i.postimg.cc/fLwYpwgd/IMG-4029.gif)  i like jjk + nge :-)  w2i
 > 
 > 13+  i like kgrps and i host one ![]()
 >
