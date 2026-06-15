@@ -1,3 +1,4 @@
+︵  ![made by @/lavendergalactic on tumblr](https://i.postimg.cc/KjDHkFQ1/30.gif)  ![](https://komarev.com/ghpvc/?username=curseoflove&style=for-the-badge&color=9F8ECC&label=fallen+angels)
 
 <img src="https://files.catbox.moe/11azrz.png" width="350" height="350">
 
