@@ -3,12 +3,22 @@
 <img src="https://i.postimg.cc/D0Nd38n3/Untitled17-20260718194544.webp" width="250"  height="350" align="left">
 
 
-  hiii test oll
-wait
+  call me rose or whatever you wanna call me
 
-for
-meh
-to
-finish 
+ feel free 2 c*h :-) 
 
-![](https://files.catbox.moe/o1kpec.gif)
+
+ i am a geto, gojoo, sukuna selfshipper
+
+ doubles can block if uncomfortable
+
+ i like talking about ocs or
+
+ making skins in general
+
+ i'm open to new friends 👀
+
+ 
+ thank you for reading :-)
+
+  ![](https://files.catbox.moe/o1kpec.gif)
